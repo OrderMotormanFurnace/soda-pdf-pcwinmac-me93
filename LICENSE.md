@@ -1,4 +1,4 @@
-# 
+# Gratuit Sejda PDF extensions pour Mac OS | Top Sejda PDF extensions pour PC Windows. Avec outils de collaboration et synchronisation dans le cloud — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
